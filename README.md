@@ -1,0 +1,2 @@
+# Kvalifikacijasdarbs24
+qweqweqweqwe
